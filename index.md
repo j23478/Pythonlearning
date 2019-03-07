@@ -3,3 +3,6 @@
 ![mypig](./mypig.jpg)
 
 :kissing_heart:
+
+3/7 Thursday
+today is my first day
